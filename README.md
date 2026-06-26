@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tam308
-- 👀 I’m interested in retro consoles
-- 🌱 I’m currently learning C
+- 👀 I’m interested in retro consoles and watches
+- 🌱 I’m currently learning literally everything
 - 💞️ I’m looking to collaborate on 2006 honda civic
 - 📫 How to reach me : add me on clash royale
 - 😄 Pronouns: the/goat
